@@ -1,0 +1,2 @@
+# thinksAlot
+Great people think.. 
